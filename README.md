@@ -1,4 +1,7 @@
-## Work In Progress ...
+<!-- Centered Header Section -->
+<div align="center">
+</h1> Work In Progress .. </h1>
+<p>(https://komarev.com/ghpvc/?username=gardenofdelight&color=cf95a2)</p>
 
 <!--
 **gardenofdelight/gardenofdelight** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
