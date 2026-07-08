@@ -13,7 +13,7 @@
     
 <p>  </p>
 
-<p> hello there! eternal here, since i have not made a (new) proper strawpage and or rentry to write down my information yet, i will be writing it here. this is also the first time i am attempting to write a readme. i barely know anything about coding, apologies .. </p>
+<p> hello! eternal here, since i have not made a (new) proper strawpage and or rentry to write down my information yet, i will be writing it here. this is also the first time i am attempting to write a readme. i barely know anything about coding, apologies .. </p>
 
 <p> first things first, i just want to get these out of the way — </p>
 
@@ -37,10 +37,13 @@
 
 <p> when i have IWC, IWEC, or IWVEC in my name, i am either upset, going through an episode, or both! please be mindful of how you interact with me. </p>
 
-<p> main stuff i am interested in right now are .. Cookie Run: Kingdom, Letters From Sixteen, Sofia The First (grew up watching the show and ive recently rewatched the entirety of it, still as awesome as ever... however i do not like royal magic in the slightest) Ever After High, .. </p>
+<p> main stuff i am interested in right now are .. Cookie Run: Kingdom, Letters From Sixteen, Daybreak: Remisted (roblox), Sofia The First (grew up watching the show and ive recently rewatched the entirety of it, still as awesome as ever... however i do not like royal magic in the slightest) Ever After High, .. </p>
 
-<p> its late at night, i'll continue at some point. </p>
+<p> as of writing this, it's late at night, i'll continue at some point. </p>
 
+
+<p> thank you for reading, </p>
+  
 <p> To Be Added! ~ </p>
 
 ｡ ₊°༺❤︎༻°₊ ｡
