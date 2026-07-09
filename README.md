@@ -27,6 +27,8 @@
 
 <p> i am happily taken by my lovely girlfriend ‹𝟹 </p>
 
+<p> i loove love love eternalflour / mysticsugar. my crk otp ♡ </p>
+
 <p> regarding ponytown, </p>
 
 <p> C+H is always welcome and even encouraged unless stated otherwise! stated otherwise as in, if i have any form of DNI in my name. I love cuddle piles and sitting together with people even if we're both not down to talk. </p>
