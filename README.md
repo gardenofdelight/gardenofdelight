@@ -27,7 +27,7 @@
 
 <p> i am happily taken by my lovely girlfriend ‹𝟹 </p>
 
-<p> i loove love love eternalflour / mysticsugar. my crk otp ♡ </p>
+<p> i loove love love eternalflour / mysticsugar. they're my crk otp ♡ whether it's back when they were virtues or present day. </p>
 
 <p> regarding ponytown, </p>
 
