@@ -27,7 +27,7 @@
 
 <p> i am happily taken by my lovely girlfriend ‹𝟹 </p>
 
-<p> i loove love love eternalflour / mysticsugar. they're my crk otp ♡ whether it's back when they were virtues or present day. </p>
+<p> i loove love love eternalflour / mysticsugar. they're my crk otp 𖹭 whether it's back when they were virtues or present day. </p>
 
 <p> regarding ponytown, </p>
 
@@ -37,7 +37,11 @@
 
 <p> W2I! If i am sitting still and not speaking, whether i'm with a friend or alone, it usually means that i am offtab. i am more often than not offtab doing other stuff, so if you'd like to interact id advise to Whisper me! because it is not a 100% guarantee that i will notice you if you do not. sometimes i am late to read whispers aswell though and i am very sorry for said times. </p>
 
+<p> i would prefer to not to be covered unless it's for C+H purposes, but it's not a huge deal. </p>
+
 <p> when i have IWC, IWEC, or IWVEC in my name, i am either upset, going through an episode, or both! please be mindful of how you interact with me. </p>
+
+<p> sorry for this but i usually do not accept friend requests if they are sudden . like for example; if we havent even interacted once and you send me one it is unlikely i will accept it. i encourage you to bmf, just interact with me a little before doing so maybe.. /nf 𖹭 </p>
 
 <p> main stuff i am interested in right now are .. Cookie Run: Kingdom, Letters From Sixteen, Daybreak: Remisted (roblox), Sofia The First (grew up watching the show and ive recently rewatched the entirety of it, still as awesome as ever... however i do not like royal magic in the slightest) Ever After High, .. </p>
 
