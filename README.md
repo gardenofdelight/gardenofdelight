@@ -45,6 +45,8 @@
 
 <p> main stuff i am interested in right now are .. Cookie Run: Kingdom, Letters From Sixteen, Daybreak: Remisted (roblox), Sofia The First (grew up watching the show and ive recently rewatched the entirety of it, still as awesome as ever... however i do not like royal magic in the slightest) Ever After High, .. </p>
 
+<p> pt's eternal sugar cookie ‹𝟹 </p>
+
 <p> as of writing this, it's late at night, i'll continue at some point. </p>
 
 
