@@ -43,7 +43,7 @@
 
 <p> sorry for this but i usually do not accept friend requests if they are sudden . like for example; if we havent even interacted once and you send me one it is unlikely i will accept it. i encourage you to bmf, just interact with me a little before doing so maybe.. /nf 𖹭 </p>
 
-<p> main stuff i am interested in right now are .. Cookie Run: Kingdom, Letters From Sixteen, Daybreak: Remisted (roblox), Sofia The First (grew up watching the show and ive recently rewatched the entirety of it, still as awesome as ever... however i do not like royal magic in the slightest) Ever After High, .. </p>
+<p> main stuff i am interested in right now are .. Cookie Run: Kingdom, Spooky Month, Letters From Sixteen, Daybreak: Remisted (roblox), Sofia The First (grew up watching the show and ive recently rewatched the entirety of it, still as awesome as ever... however i do not like royal magic in the slightest) Ever After High, .. </p>
 
 <p> ~ pt's eternal sugar cookie ‹𝟹 ~ </p>
 
