@@ -47,8 +47,6 @@
 
 <p> ~ pt's eternal sugar cookie ‹𝟹 ~ </p>
 
-<p> unofficial .. as in, i never nominated myself to be in those proper "pt-hall-of-media" ones. but i dont care. x </p>
-
 <p> as of writing this, it's late at night, i'll continue at some point. </p>
 
 
